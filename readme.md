@@ -1,0 +1,1 @@
+[worddoc to the project](https://docs.google.com/document/d/1ZIpushgD-3DpEcorFqAB6UFoS16yeNnbZaFp-nTksMU/edit?tab=t.0#heading=h.ubvjxf1klgj8)
